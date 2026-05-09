@@ -1,4 +1,4 @@
-
+new Action for Affinity Photo for macOS - layer styles and blend modes is the best Affinity Photo for macOS action, featuring layer styles and blend modes. Safe, efficient, and
 
 
 
